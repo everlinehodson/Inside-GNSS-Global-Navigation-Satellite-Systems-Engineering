@@ -1,0 +1,2 @@
+# Inside-GNSS-Global-Navigation-Satellite-Systems-Engineering
+Inside GNSS gives original and also objective protection of the policies, programs, engineering as well as progressed applications of the GNSS systems and also their drivers in the USA, Europe, Russia, China, India as well as Japan.  It purely targets satellite navigation engineers, item developers and system integrators, market and also government leaders. The printed version of the publication reaches a global target market of 30,000 subscribers and also a 3rd of those visitors live outside of the USA.
